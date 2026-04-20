@@ -131,7 +131,7 @@ Hostinger frequently updates its deals, and coupons are **not always available o
 **Pro Tip:** Instead of relying only on a coupon code, focus on getting the **auto-applied referral link + long-term plan**, which usually gives the **lowest final price**.
 
 
-##Terms & Conditions Of Hostinger 20% Off Coupon Codes
+## Terms & Conditions Of Hostinger 20% Off Coupon Codes
 - The 20% off coupon is mainly available for new (fresh) users making their first purchase.
 - It works only on eligible hosting plans like shared, WordPress, cloud, agency or VPS hosting.
 - The discount is usually auto-applied at checkout when using a valid deal link—no need to enter manually.
