@@ -73,6 +73,8 @@ Based on competitor + real user insights:
 - Use **referral link → auto extra discount**  
 - Check final price at checkout
 
+👉 [Apply 20% Off Coupon Code (All Hosting Plans)](https://www.hostinger.com/in?REFERRALCODE=OFFER20APPLY)
+
 ## Truth About Hostinger Coupon Codes (2026)
 
 - No “100% Off” or fake coupons  
@@ -113,6 +115,8 @@ The 20% discount is most likely to work when:
 - You are purchasing a **new hosting plan (not renewal)**
 
 This extra discount is **automatically applied at checkout**, without entering any code manually.
+
+👉 [New User Offer Hostinger 20% Off Discount](https://www.hostinger.com/in?REFERRALCODE=OFFER20APPLY)
 
 ### When the 20% Coupon May NOT Work
 
