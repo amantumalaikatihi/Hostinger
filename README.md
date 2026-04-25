@@ -212,7 +212,6 @@ Your coupon may not work because the biggest Hostinger discount is already auto-
 - [New Users Hostinger Discount Coupon Deal](https://hostingercoupon.netlify.app/)
 - [Hostinger Coupon code for first time user](https://bitbucket.org/hostingercoupons/hostinger/)
 - [Hostinger 20% Off Coupon Code Offer](https://sites.google.com/view/hostinger20/)
-- [New Hostinger User Discount Deal](https://hostingercoupons.neocities.org/)
 - [Best Hostinger Coupon Deal For Hosting](https://amantumalaikatihi.alboompro.com/post/hostinger-coupon-code-20-off-promo-code-2026)
 - [Hostinger Coupon Code: 75% Discount + 20% OFF Promo](https://shaikhazaz113.systeme.io/)
 - [Hostinger 20% OFF Coupon Code (Auto Applied at Checkout)](https://hostinger-coupons.mystrikingly.com/)
