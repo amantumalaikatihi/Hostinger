@@ -1,4 +1,4 @@
-# Hostinger Coupon Code (2026) 20% OFF Website Hosting + Free Domain
+# Hostinger Coupon Codes | 75% Discount + Extra 20% Off Promo Code
 
 ![hosting](https://raw.githubusercontent.com/amantumalaikatihi/Hostinger/refs/heads/main/hostinger_163004.jpg)
 
