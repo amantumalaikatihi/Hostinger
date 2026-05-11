@@ -206,5 +206,3 @@ No. Only one coupon is allowed
 Your coupon may not work because the biggest Hostinger discount is already auto-applied at checkout, especially for new users, making additional codes unnecessary or invalid.
 
 👉 [Activate The Deal Before It Expires: 20% Off Coupon](https://www.hostinger.com/in?REFERRALCODE=OFFER20APPLY)
-- [Hostinger 20% Off Coupon Code – Save More on Premium Hosting](https://hostingercoupons5.wordpress.com/)
-- [Hostinger Coupon Code 20% OFF (2026) Best Hosting Deal for New Users](https://assets.ctfassets.net/033w6pupeqcz/xX4aTk1UwwTmBr5xlyIzk/92e5d120fddd5c9c881510292a6f159b/hostinger-coupon-codes.pdf)
