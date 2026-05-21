@@ -1,4 +1,4 @@
-# Hostinger Coupon Codes | 75% Discount + Extra 20% Off Promo Code
+# Hostinger 20% Off Coupon For Domain Renewal 2026
 
 ![hosting](https://raw.githubusercontent.com/amantumalaikatihi/Hostinger/refs/heads/main/hostinger_163004.jpg)
 
