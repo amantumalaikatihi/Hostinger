@@ -1,4 +1,4 @@
-# Hostinger Coupon Code (2026) 75% + 20% OFF On Hosting for New Users
+# Hostinger Web Hosting Coupon Code (2026) 20% OFF for New Users
 
 ![hosting](https://raw.githubusercontent.com/amantumalaikatihi/Hostinger/refs/heads/main/hostinger_163004.jpg)
 
