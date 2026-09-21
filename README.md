@@ -1,6 +1,6 @@
 # 83% OFF Hostinger Coupon Codes for Hosting and Domain
 
-![hosting](https://raw.githubusercontent.com/amantumalaikatihi/Hostinger/refs/heads/main/hostinger_163004.jpg)
+![hosting](https://raw.githubusercontent.com/amantumalaikatihi/Hostinger/refs/heads/main/hostinger_163005.jpg)
 
 Are you a new user looking to get Hostinger hosting at the best price and want a **working Hostinger coupon codes**? Here’s something many users don’t realize:
 
