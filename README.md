@@ -1,4 +1,4 @@
-# 20% OFF Hostinger Coupon Codes for Hosting and Domain
+# Hostinger Hosting Coupon Codes (20% OFF) September 2026
 
 ![hosting](https://raw.githubusercontent.com/amantumalaikatihi/Hostinger/refs/heads/main/hostinger_163005.jpg)
 
