@@ -1,4 +1,4 @@
-# 83% OFF Hostinger Coupon Codes for Hosting and Domain
+# 20% OFF Hostinger Coupon Codes for Hosting and Domain
 
 ![hosting](https://raw.githubusercontent.com/amantumalaikatihi/Hostinger/refs/heads/main/hostinger_163005.jpg)
 
