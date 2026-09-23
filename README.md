@@ -37,7 +37,7 @@ Apply [Hostinger VPS Coupon Code to get up to 20% instant discount](https://www.
 - **+ 3 months FREE on long-term plans**
 - **Free domain (1 year) + SSL included**
 
-**Important**: The biggest discount is **already applied automatically when you visit Hostinger through a [deal link](https://www.hostinger.com/in?REFERRALCODE=COUPON20APPLY)** — no coupon code needed.
+**Important**: The biggest discount is **already applied automatically when you visit Hostinger through a [deal link](https://www.hostinger.com/in/cart?product=hosting%3Ahostinger_premium&period=48&referral_type=cart_link&REFERRALCODE=COUPON20APPLY&referral_id=01a0cbe7-fa63-70f0-b61e-85239fc115ec)** — no coupon code needed.
 
 [![Coupon Button](https://raw.githubusercontent.com/amantumalaikatihi/Hostinger/refs/heads/main/coupon_button_163556.jpg)](https://www.hostinger.com/in?REFERRALCODE=COUPON20APPLY)
 
