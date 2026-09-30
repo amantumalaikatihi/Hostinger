@@ -1,6 +1,6 @@
-# 20% OFF Hostinger Coupon Code for Hosting and Domain
+# Hostinger Coupon Code (2026) 20% OFF for New Hosting Users
 
-[![hosting](https://raw.githubusercontent.com/amantumalaikatihi/Hostinger/refs/heads/main/hostinger_163005.jpg)](https://www.hostinger.com/in/cart?product=hosting%3Ahostinger_premium&period=12&referral_type=cart_link&REFERRALCODE=COUPON20APPLY&referral_id=01a0cbdb-1670-70e5-8a33-53b5b437e551)
+[![hosting](https://raw.githubusercontent.com/amantumalaikatihi/Hostinger/refs/heads/main/hostinger_163005.jpg)](https://www.hostinger.com/in?REFERRALCODE=COUPON20APPLY)
 
 Are you a new user looking to get Hostinger hosting at the best price and want a **working Hostinger coupon codes**? Here’s something many users don’t realize:
 
