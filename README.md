@@ -1,4 +1,4 @@
-# Hostinger Coupon Codes 20% OFF Website Hosting 2026
+# Hostinger Coupon Code (2026) 20% OFF Website Hosting
 
 [![hosting](https://raw.githubusercontent.com/amantumalaikatihi/Hostinger/refs/heads/main/hostinger_163007.jpg)](https://www.hostinger.com/in?REFERRALCODE=KMMSNAZIY8CP)
 
